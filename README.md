@@ -1,0 +1,5 @@
+- 👋 Hi, I’m Aleksandra
+- 👀 I’m interested in Playing games
+- 🌱 I’m currently learning to make a discord bot!
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me : Discord - ᴄᴀᴛɪʟʟɪᴀᴍ ᴀꜰᴛᴏɴ ⍩#4710
